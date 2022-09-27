@@ -1,1 +1,0 @@
-# shinhancom_ver0.2
